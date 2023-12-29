@@ -19,7 +19,7 @@
 
 
 ### Ссылка на материалы проекта и отчет
-
+https://disk.yandex.ru/d/AhlGnIEwu1bmzQ
 
 ### Ссылка на видеоотчет на YouTube
 https://www.youtube.com/watch?v=3vpifanK9Lk&ab_channel=MrXrel
